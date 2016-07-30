@@ -1,0 +1,3 @@
+#Automatic Digital Microscope's Repository
+Greetings, feel free to download the files you are interested in. 
+Just, do not copy our idea for the contest, at least wait until it finishes ...  
